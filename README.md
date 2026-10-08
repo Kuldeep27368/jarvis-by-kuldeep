@@ -1,1 +1,0 @@
-# jarvis-by-kuldeep
